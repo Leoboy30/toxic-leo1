@@ -1,5 +1,14 @@
 #### CONTACT [` CLICK HERE TO JOIN GROUP✨`](https://chat.whatsapp.com/FCwVcEZvwWLCcO0h1P2IBG) 
 
+## ᴛᴏxɪᴄ ʟᴇᴏ_
+ʙʏ:ᴀᴋᴀsʜ
+
+
+> <img src="https://i.imgur.com/2zDbMqr.jpeg" alt="nz" width="350"/>
+</p>
+
+
+
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/akash_ak_4) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/c/https://youtube.com/channel/UCNAXcvRkE73MkHNC0RH1_5Q) 
 
